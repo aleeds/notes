@@ -26,4 +26,16 @@ Creon: Law of Man
   State/City/Thebes 
 Antigone: Law of the Gods 
   Female
-   Family
+  Family
+
+Chorus Line 335: People can do lots of things, master of nature
+                 and animals, and cities. This mastery can lead
+                 to evil or to good. You can only avoid tragedy
+                 if you follow the law of the gods and the law
+                 of man. 
+
+According to Creon, only when the government/state/city is doing well
+can we have friends. When Creon decsribes how the brother of antigone should
+be treated, he is echoing back to the description of the mistreatment of hector.
+
+Law of the Gods and the Law of Man should be balanced. 
